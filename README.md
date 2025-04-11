@@ -1,12 +1,12 @@
-Hi besties !! <3 'w'
+Hi friend !! <3 'w'
 
-This is like something very new to me and I'm very stupid so don't expect much lols
+I still have to learn some stuff here heh-
 
-Heres some stuff I like to do during my free time:
+Anyway, if you don't want to check out my strawpage (which is fine), here's a quick little "about me" thingy
 
-Draw - Read comics - Zone out - Make character designs - Watch videos - Sleep
+-* - I am female, I enjoy drawing a ton and absolutely DESPISE coloring traditionally (I just think it ruins the drawing, but that's just me using the wrong colors hehe), I am horrible at explaining things, so please expect that if you want an explantion of something (or something close to that), conversations may end quickly if I don't know you, (wait now I'm just explaining other things!..)
 
-I like seeing others happy, it makes me smile :)
+AHEM! I like the color blue and purple combined, it's very pretty. Amy Rose is a character I use a lot as my persona, but I have since made a different version of her which I use to represent myself now. I can tend to be quite shy or nervous if approached in games (idk why and I really hate it) which might cause me to leave the game. >_< - *-
 
 Have a lovely day! (you can also visit my strawpage to see more about me if you'd like..) >w<
 
