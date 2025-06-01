@@ -7,19 +7,3 @@ BENNY IS SUPER COOL TOO !!!!!!! >v<
 
 Also I like making characters (cosplays) somewhat canon hehe : 3
 
-
-
-
-
-
-
-
-
-
-
-
-
-I like blue
-
-
-
