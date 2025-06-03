@@ -7,3 +7,8 @@ BENNY IS SUPER COOL TOO !!!!!!! >v<
 
 Also I like making characters (cosplays) somewhat canon hehe : 3
 
+
+Happy pride month!
+![good morning besties!](https://github.com/user-attachments/assets/77700e7d-24c9-4717-9f14-cee69908aeb0)
+
+
