@@ -1,27 +1,7 @@
 I like making characters (cosplays) somewhat canon hehe : 3
 
-·✵•　　　•　.　　　　　　✶　　*　　　　·•*　　　　　　　*•.　　　　
-　　•　**.　　✵*　★　　　　·　✷　°　　　　　•　　　　　　　　　　　　
-　　　　　　☆　　　·*　.　•　　　　　　　　　　　　•°　•*°*　　　　　
-·　　*　　　　　·✵　　•　　　✧　　✧　　　　•　°　　.　　　　　　　　　
-　　　.　　　•　　*✦·　　　　　.　　　　°*　　°✷　　✧　　　✦*　　　
-*　　　°　　　　.　.　　·　　　　　°　　　　　✵　　.　　✷　　　°　　　
-✧·°　　.　·　　　　　　　　　*★　　　*　　✯　*·*　　*　　*　　　　
-　　　　　　°·°•　·　.　　　　*•　☆　*　*　　　　　　　·　　·　　　
-　　　·°•°　　　　　✧　　　•　　·　　　　.　　　　　　　　°*　.　　　
-　　✯　*　　　　.·　.　　.　　•　　　　　°　*　..　✵　　.　　.·°
-·　•　·.　　°　*　★　°　　*　.　　•　　　　　　.　　°　*　·　　　
-　.°　°　　*.°　　　·★　　　　　　°　　·°　　　　　　　　　.·　　✯
-　　　　✦　　　　　　　　　　　°.•　　　　*✧.✦•..•°　☆.　　　　*
-　✷　　　　.°　　　　••　　*•　✯*　　°　*　·　　　　　　••　　　.
-　　　·　✦　　··°·　　°　✧　　　　　　　　*.•　•　　　✧　*　　·•
-　　　　.*　°　*　　　　°　·　°°　　　　·　　　　　　　　　*　　　✶　
-*　•　*·　•°·　•　　　　　.°　　　　　　　　　　　✧　☆　•　　　　　
-　　　　　　　　✦　　　　　　**　　　　.　　°　　　　　　✯　　　•　　*　
-　✶　　.　　　·　　　　°✵　　　　　　.　　　•　　*　　　*　　*　　　·
-　°　　　　✸.　✦　　　　　•　　　　　　　　　　　.　　　　✸　　　✦.　　
+Happy pride month chat
 
-Happy pride month!
-![good morning besties!](https://github.com/user-attachments/assets/77700e7d-24c9-4717-9f14-cee69908aeb0)
+https://www.tiktok.com/t/ZP8rRwENc/
 
-
+![images (2)](https://github.com/user-attachments/assets/76d60e97-f2ff-4c0b-8326-e480e0b801b5)
