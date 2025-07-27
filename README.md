@@ -8,3 +8,6 @@ https://www.tiktok.com/t/ZP8rRwENc/
 
 𝐇𝐚𝐯𝐞 𝐚 𝐥𝐨𝐯𝐞𝐥𝐲 𝐝𝐚𝐲 , 𝐜𝐨𝐨𝐥 𝐩𝐞𝐫𝐬𝐨𝐧 !!
 
+<img src="https://github.com/user-attachments/assets/d643569b-c900-4ad5-bdcf-af14fae2c8b1" width="100" height="100" /> <img src="https://github.com/user-attachments/assets/0dbcd317-5ff2-4c3b-8548-04c3954d59dd" width="100" height="100" /> <img src="https://github.com/user-attachments/assets/cdf7ca5e-ba35-41df-b0f3-ae6529d3621b" width="100" height="100" /> <img src="https://github.com/user-attachments/assets/9a96becc-6521-499f-8cb8-a38b3a0b6080" width="100" height="100" />
+
+
