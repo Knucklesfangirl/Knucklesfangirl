@@ -13,7 +13,7 @@
 
 https://www.tiktok.com/t/ZP8rRwENc/
 
-![shotgunman excited](https://github.com/user-attachments/assets/b5d4e9d5-3ad6-4812-b1b5-e41d1fff2acb)
+![shotgunman excited](https://github.com/user-attachments/assets/b5d4e9d5-3ad6-4812-b1b5-e41d1fff2acb)    <--- 𝘆𝗼 𝗵𝗲'𝘀 𝗹𝗶𝗸𝗲 𝗺𝗲 ᵔ ᵕ ᵔ
 
 <P align="center">
 𝐇𝐚𝐯𝐞 𝐚 𝐥𝐨𝐯𝐞𝐥𝐲 𝐝𝐚𝐲 , 𝐜𝐨𝐨𝐥 𝐩𝐞𝐫𝐬𝐨𝐧 !!
