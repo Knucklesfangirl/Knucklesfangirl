@@ -5,11 +5,11 @@
 
  
 <P align="center">
-𝐈 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐦𝐚𝐤𝐞 𝐜𝐨𝐬𝐩𝐥𝐚𝐲𝐬 𝐚𝐬 𝐜𝐚𝐧𝐨𝐧 𝐚𝐬 𝐩𝐨𝐬𝐬𝐢𝐛𝐥𝐞 :𝟑
+ミ★ 𝘐 𝘭𝘪𝘬𝘦 𝘵𝘰 𝘮𝘢𝘬𝘦 𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘴 𝘢𝘴 𝘤𝘢𝘯𝘰𝘯 𝘢𝘴 𝘱𝘰𝘴𝘴𝘪𝘣𝘭𝘦 :3 ★彡
 <P align="center">
-𝙊𝙂 𝙁𝙉𝙁 𝙁𝘼𝙉 💯 ("𝐰𝐡𝐲'𝐝 𝐲𝐨𝐮 𝐚𝐝𝐝 𝐭𝐡𝐢𝐬?" 𝐢𝐝𝐤 𝐢𝐭'𝐬 𝐬𝐨 𝐟𝐫𝐞𝐚𝐤𝐢𝐧𝐠 𝐮𝐬𝐞𝐥𝐞𝐬𝐬 𝐛𝐮𝐭 𝐄𝐇𝐡𝐡 𝐈 𝐥𝐢𝐤𝐞 𝐬𝐡𝐚𝐫𝐢𝐧𝐠)
+𝙊𝙂 𝙁𝙉𝙁 𝙁𝘼𝙉 💯 ("𝘸𝘩𝘺'𝘥 𝘺𝘰𝘶 𝘢𝘥𝘥 𝘵𝘩𝘪𝘴?" 𝘐𝘥𝘬 𝘵𝘩𝘪𝘴 𝘪𝘴 𝘶𝘴𝘦𝘭𝘦𝘴𝘴 𝘢𝘧 𝘣𝘶𝘵 𝘭𝘪𝘬𝘦 𝘪𝘥𝘤 𝘵𝘩𝘢𝘵 𝘮𝘶𝘤𝘩 𝘴𝘩𝘢𝘳𝘪𝘯𝘨 𝘪𝘴 𝘧𝘶𝘯)
 <P align="center">
-𝐇𝐚𝐯𝐞 𝐚 𝐥𝐨𝐯𝐞𝐥𝐲 𝐝𝐚𝐲 , 𝐜𝐨𝐨𝐥 𝐩𝐞𝐫𝐬𝐨𝐧 !!
+𝘏𝘢𝘷𝘦 𝘢 𝘭𝘰𝘷𝘦𝘭𝘺 𝘥𝘢𝘺 , 𝘤𝘰𝘰𝘭 𝘱𝘦𝘳𝘴𝘰𝘯!!
 <P align="center">
 <img src="https://github.com/user-attachments/assets/d643569b-c900-4ad5-bdcf-af14fae2c8b1" width="100" height="100" /> 
 <img width="99" height="56" alt="dcumu26-3a9187cb-085b-4fa6-9739-bffc6babd5f0" src="https://github.com/user-attachments/assets/b9e3185d-1b56-4f5b-b6cd-639db28690e8" /> <img width="99" height="56" alt="dcumsw7-b7e0f8ed-a857-46bd-bf0c-e355fbc2d0e1" src="https://github.com/user-attachments/assets/f3f8b8e7-2b28-47da-8514-f1e04089ce43" /> <img width="99" height="56" alt="d8d6jho-5edac50a-ad0b-46aa-92b6-d8b3472dcab7" src="https://github.com/user-attachments/assets/db7ca878-c9e8-4557-ab10-3069e413d89c" />
