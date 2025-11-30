@@ -5,9 +5,8 @@
 
 
 <P align="center">
-
-<img width="1920" height="1080" alt="Untitled344_20251108130129" src="https://github.com/user-attachments/assets/6b99c0ed-c987-4f4f-af8c-ee49ead53a7a" />
-
+ 
+ <img width="1276" height="695" alt="Screenshot 2025-11-29 9 03 52 PM" src="https://github.com/user-attachments/assets/ea596cb6-db3a-4dca-a615-c3a445b0bd38" />
 
 
 
