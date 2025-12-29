@@ -1,6 +1,10 @@
 ⋆⋅☆⋅⋆ ──  <img src="https://github.com/user-attachments/assets/d643569b-c900-4ad5-bdcf-af14fae2c8b1" width="100" height="100" /> 
-<img width="99" height="56" alt="dcumu26-3a9187cb-085b-4fa6-9739-bffc6babd5f0" src="https://github.com/user-attachments/assets/b9e3185d-1b56-4f5b-b6cd-639db28690e8" /> <img width="99" height="56" alt="dcumsw7-b7e0f8ed-a857-46bd-bf0c-e355fbc2d0e1" src="https://github.com/user-attachments/assets/f3f8b8e7-2b28-47da-8514-f1e04089ce43" /> <img width="99" height="56" alt="d8d6jho-5edac50a-ad0b-46aa-92b6-d8b3472dcab7" src="https://github.com/user-attachments/assets/db7ca878-c9e8-4557-ab10-3069e413d89c" />
- <img width="99" height="56" alt="d31eycs-a5edf4be-58c2-4ffd-8067-e2d12588fa11" src="https://github.com/user-attachments/assets/1c8fa07b-2243-4229-846e-03fcf7c9ef73" /> <img width="99" height="56" alt="d2ts81l-6426ea30-1265-4358-97c9-75376875bf4f" src="https://github.com/user-attachments/assets/de647a51-9f47-495c-952b-b9a7fbe0ebc2" /> <img width="99" height="55" alt="d6jneeh-1a950cea-2601-4cf0-bdc3-404f9cdf67e3" src="https://github.com/user-attachments/assets/238a5736-537d-44e1-af54-4fa0ab941099" /> ── ⋆⋅☆⋅⋆
+<img width="99" height="57" alt="d62p873-fd2ae8a0-3918-4bd1-9d85-dc4158c5cc11" src="https://github.com/user-attachments/assets/ad61719c-da96-446d-86ba-9f6a5d09fe7e" />
+<img width="99" height="56" alt="giffany_stamp_by_psycho_memory_d9pskie-fullview" src="https://github.com/user-attachments/assets/a8af0be8-bb4c-4781-a38f-a83b106e98b8" />
+<img width="99" height="56" alt="dc2chdp-6f5b40fb-b9e1-4f13-a2f2-73ff9a3ae075" src="https://github.com/user-attachments/assets/9e8a6af6-1de3-465d-b637-8e9517d1c6a7" />
+<img width="99" height="56" alt="dc3p4u6-22927c56-32fd-4db4-a99d-6d50cde1dc1b" src="https://github.com/user-attachments/assets/2ac6d528-00f5-4e66-adc1-9cb34499b6ba" />
+![death_threats_suck__by_supermariofan65_da07wtu-fullview](https://github.com/user-attachments/assets/bfd6b00e-13a4-4308-85ec-44f8ee4b9517)
+<img width="99" height="56" alt="2025_12_29_0m8_Kleki" src="https://github.com/user-attachments/assets/75a075a7-8580-4b2c-98af-b4d501cbd9e2" /> ── ⋆⋅☆⋅⋆
 
 
 
