@@ -3,8 +3,8 @@
 <img width="99" height="56" alt="giffany_stamp_by_psycho_memory_d9pskie-fullview" src="https://github.com/user-attachments/assets/a8af0be8-bb4c-4781-a38f-a83b106e98b8" />
 <img width="99" height="56" alt="dc2chdp-6f5b40fb-b9e1-4f13-a2f2-73ff9a3ae075" src="https://github.com/user-attachments/assets/9e8a6af6-1de3-465d-b637-8e9517d1c6a7" />
 <img width="99" height="56" alt="dc3p4u6-22927c56-32fd-4db4-a99d-6d50cde1dc1b" src="https://github.com/user-attachments/assets/2ac6d528-00f5-4e66-adc1-9cb34499b6ba" />
-![death_threats_suck__by_supermariofan65_da07wtu-fullview](https://github.com/user-attachments/assets/bfd6b00e-13a4-4308-85ec-44f8ee4b9517)
-<img width="99" height="56" alt="2025_12_29_0m8_Kleki" src="https://github.com/user-attachments/assets/75a075a7-8580-4b2c-98af-b4d501cbd9e2" /> ── ⋆⋅☆⋅⋆
+<img width="99" height="56" alt="2025_12_29_0m8_Kleki" src="https://github.com/user-attachments/assets/75a075a7-8580-4b2c-98af-b4d501cbd9e2" /> 
+![death_threats_suck__by_supermariofan65_da07wtu-fullview](https://github.com/user-attachments/assets/d8e29568-da15-44b0-b11c-5ce4e0474567) ── ⋆⋅☆⋅⋆
 
 
 
