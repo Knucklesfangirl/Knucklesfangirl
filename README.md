@@ -20,7 +20,7 @@
 <img width="99" height="56" alt="2025_12_29_0mi_Kleki" src="https://github.com/user-attachments/assets/46765e53-8813-4896-8e7c-5bc1b34ce4ef" />
 <img width="99" height="56" alt="burning_spice_cookie_stamp_by_pastel_q_dk7c0sl-fullview" src="https://github.com/user-attachments/assets/8b4ae1c7-2ecf-467e-b311-4c78de8dd6c7" />
 <img width="99" height="56" alt="dj0u7pg-c5f103ef-7249-4639-8090-c2d6bbc875c3" src="https://github.com/user-attachments/assets/8bd7522e-b4b6-4499-adc1-1cee516dfa7a" /> 
-<img width="99" height="55" alt="d61ql0o-61110276-efec-4bba-9ad2-01e8645b9434" src="https://github.com/user-attachments/assets/ec026372-93bd-48e5-885e-0d8aeef194d6" /> ── ⋆⋅☆⋅⋆
+ <img width="99" height="56" alt="Untitled391_20251229212839" src="https://github.com/user-attachments/assets/ee8fe8c2-c46f-46e7-9403-cd6c4f1f6035" /> ── ⋆⋅☆⋅⋆
 
 
 
