@@ -11,7 +11,8 @@
 
 <P align="center">
  
-<img width="1312" height="671" alt="Screenshot 2025-12-24 12 16 48 AM" src="https://github.com/user-attachments/assets/a1186c3a-ba3c-4c32-9d8a-bf55efff7f4d" />
+<img width="498" height="278" alt="2025_12_29_126_Kleki" src="https://github.com/user-attachments/assets/55a31f0d-f526-4a8f-8815-dfa76217a027" />
+
 
 
 ⋆⋅☆⋅⋆ ──  <img width="99" height="56" alt="red_guy_stamp_by_random_chan112_d8o8b7i-fullview" src="https://github.com/user-attachments/assets/b9a3e3a2-d1cf-4ae9-b215-991d76d09eea" />
