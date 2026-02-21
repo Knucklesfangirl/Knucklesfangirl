@@ -42,7 +42,7 @@
 . ceo of silentvanilla/puresalt and burntforest .
  
 <P align="center">
-"ₕₐᵥₑ yₒᵤᵣ ₑᵥₑᵣ ₕₐd ₐ ₜᵤₙₑ ₛₒ cₐₜcₕy ₜₕₐₜ ᵢₜ ₙₑₛₜₗₑₛ ᵢₜₛ wₐy ᵢₙ yₒᵤᵣ bᵣₐᵢₙ?"
+degenorocity , derekfdb , and hoodydude you guys are peak , love yall
 
 
 
