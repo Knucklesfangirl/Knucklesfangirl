@@ -39,8 +39,7 @@
 𝘐 𝘧𝘰𝘭𝘭𝘰𝘸 𝘸𝘩𝘰𝘦𝘷𝘦𝘳 𝘐 𝘧𝘪𝘯𝘥 𝘯𝘪𝘤𝘦 / 𝘤𝘰𝘰𝘭 ! ★彡
 
 <P align="center">
---> 𝙨𝙩𝙪𝙛𝙛 𝐍𝐎𝐖 𝙡𝙤𝙘𝙖𝙩𝙚𝙙 𝙞𝙣 𝙢𝙮 𝙜𝙪𝙣𝙨 𝙥𝙖𝙜𝙚 <--
-
+. ceo of silentvanilla/puresalt and burntforest .
  
 <P align="center">
 "ₕₐᵥₑ yₒᵤᵣ ₑᵥₑᵣ ₕₐd ₐ ₜᵤₙₑ ₛₒ cₐₜcₕy ₜₕₐₜ ᵢₜ ₙₑₛₜₗₑₛ ᵢₜₛ wₐy ᵢₙ yₒᵤᵣ bᵣₐᵢₙ?"
