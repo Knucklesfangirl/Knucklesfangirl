@@ -11,7 +11,8 @@
 
 <P align="center">
  
-<img width="2048" height="2048" alt="Untitled440_20260220212826" src="https://github.com/user-attachments/assets/68653e50-685d-476d-ad8b-ed72fe551da1" />
+<img width="1920" height="1080" alt="Untitled441_20260220213055" src="https://github.com/user-attachments/assets/d1511035-7e22-44f3-b42d-883eb2aef993" />
+
 
 
 
