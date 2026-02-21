@@ -42,7 +42,7 @@
 . ceo of silentvanilla/puresalt and burntforest .
  
 <P align="center">
-degenorocity , derekfdb , and hoodydude you guys are peak , love yall
+degenerocity , derekfdb , and hoodydude you guys are peak , love yall
 
 
 
