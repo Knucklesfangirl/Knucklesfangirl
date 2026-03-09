@@ -46,7 +46,7 @@ very multifandom
 . ceo of silentvanilla/puresalt and burntforest .
  
 <P align="center">
-degenerocity , derekfdb , and hoodydude you guys are peak , love yall
+I draw on people's strawpages . . .sometimes. . .maybe... . alwyas..???????????
 
 
 
