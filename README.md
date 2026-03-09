@@ -46,7 +46,7 @@ very multifandom
 . ceo of silentvanilla/puresalt and burntforest .
  
 <P align="center">
-I draw on people's strawpages . . .sometimes. . .maybe... . alwyas..???????????
+I draw on people's strawpages . . .sometimes. . .maybe... . always..???????????
 
 
 
