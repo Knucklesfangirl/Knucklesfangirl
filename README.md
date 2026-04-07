@@ -1,5 +1,5 @@
 <P align="center">
-very multifandom
+ᵇᵒᵗᵗᵒᵐ ⁱᵐᵃᵍᵉ ᵈʳᵃʷⁿ ᵇʸ ᵐᵉ ᵒⁿ ⁱᵇⁱˢᵖᵃⁱⁿᵗ
 
 ![d4t7f43-81f9d6e3-49c7-45a2-80f9-fcde6d57b5ac](https://github.com/user-attachments/assets/b139e333-c346-44ec-8ca5-695537c1f8f0)
  <img src="https://github.com/user-attachments/assets/d643569b-c900-4ad5-bdcf-af14fae2c8b1" width="100" height="100" /> 
@@ -15,7 +15,8 @@ very multifandom
 
 <P align="center">
  
-<img width="1920" height="1080" alt="Untitled470_20260401185448" src="https://github.com/user-attachments/assets/78549a14-a349-4287-a0f7-e6093806ad04" />
+<img width="1920" height="1080" alt="Untitled472_20260407130546" src="https://github.com/user-attachments/assets/5c472c73-bcfc-495c-8a69-18f0e323d27e" />
+
 
 
 
