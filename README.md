@@ -1,7 +1,7 @@
 <P align="center">
 ᵇᵒᵗᵗᵒᵐ ⁱᵐᵃᵍᵉ ᵈʳᵃʷⁿ ᵇʸ ᵐᵉ ᵒⁿ ⁱᵇⁱˢᵖᵃⁱⁿᵗ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=302FF7&center=true&width=435&lines=Hug+me%2C+hug+me+and+goodbye!;Between+friends+like+you+%26+and+I%2C;I'm+gonna+miss+you+friend+of+mine%2C;wish+I+didn't+have+to+say%3A+bye+bye!)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=302FF7&center=true&width=435&lines=Hug+me%2C+hug+me+and+goodbye!;Between+friends+like+you+%26+and+I%2C;I'm+gonna+miss+you+friend+of+mine%2C;wish+I+didn't+have+to+say%3A+bye+bye!)](https://git.io/typing-svg)
 
 ![d4t7f43-81f9d6e3-49c7-45a2-80f9-fcde6d57b5ac](https://github.com/user-attachments/assets/b139e333-c346-44ec-8ca5-695537c1f8f0)
  <img src="https://github.com/user-attachments/assets/d643569b-c900-4ad5-bdcf-af14fae2c8b1" width="100" height="100" /> 
@@ -42,11 +42,7 @@
 
  
 <P align="center">
-𝘋𝘢𝘳𝘬 𝘢𝘳𝘦𝘢𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘤𝘰𝘮𝘧𝘰𝘳𝘵 𝘱𝘭𝘢𝘤𝘦𝘴 :𝘋 .
 𝘐 𝘧𝘰𝘭𝘭𝘰𝘸 𝘸𝘩𝘰𝘦𝘷𝘦𝘳 𝘐 𝘧𝘪𝘯𝘥 𝘯𝘪𝘤𝘦 / 𝘤𝘰𝘰𝘭 !
-
-<P align="center">
-. ceo of silentvanilla/puresalt and burntforest .
  
 <P align="center">
 I draw on people's strawpages . . .sometimes. . .maybe... . always..???????????
