@@ -1,6 +1,8 @@
 <P align="center">
 ᵇᵒᵗᵗᵒᵐ ⁱᵐᵃᵍᵉ ᵈʳᵃʷⁿ ᵇʸ ᵐᵉ ᵒⁿ ⁱᵇⁱˢᵖᵃⁱⁿᵗ
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=302FF7&center=true&width=435&lines=Hug+me%2C+hug+me+and+goodbye!;Between+friends+like+you+%26+and+I%2C;I'm+gonna+miss+you+friend+of+mine%2C;wish+I+didn't+have+to+say%3A+bye+bye!)](https://git.io/typing-svg)
+
 ![d4t7f43-81f9d6e3-49c7-45a2-80f9-fcde6d57b5ac](https://github.com/user-attachments/assets/b139e333-c346-44ec-8ca5-695537c1f8f0)
  <img src="https://github.com/user-attachments/assets/d643569b-c900-4ad5-bdcf-af14fae2c8b1" width="100" height="100" /> 
 <img width="99" height="57" alt="d62p873-fd2ae8a0-3918-4bd1-9d85-dc4158c5cc11" src="https://github.com/user-attachments/assets/ad61719c-da96-446d-86ba-9f6a5d09fe7e" />
