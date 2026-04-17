@@ -19,11 +19,13 @@
 
  
 <P align="center">
-𝘐 𝘧𝘰𝘭𝘭𝘰𝘸 𝘸𝘩𝘰𝘦𝘷𝘦𝘳 𝘐 𝘧𝘪𝘯𝘥 𝘯𝘪𝘤𝘦 / 𝘤𝘰𝘰𝘭 !
+I follow whoever I find nice / cool!!
  
 <P align="center">
 I draw on people's strawpages . . .sometimes. . .maybe... . always..???????????
 
+<P align="center">
+kindly dni if you tell others to "keys" over something, you should never say ANYTHING like that to anyone. Thank you!
 
 
 
