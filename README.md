@@ -6,8 +6,9 @@
 <P align="center">
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Instrument+Serif&pause=1000&color=5B88F7&width=435&lines=you've+been+walking%2C+;you've+been+hiding.;-and+you+look+half+dead;half+the+time.;Monitoring+you%2C;like+machines+do.;%22You+still+got+it%2C+;-I'm+just+keeping+an+eye%22)](https://git.io/typing-svg)
-<img width="1920" height="1080" alt="Untitled490_20260430002621" src="https://github.com/user-attachments/assets/80f7edbc-44f9-43dd-b16a-f94d58357362" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7B7D4&width=435&lines=sweet+sweet;you're+so+sweet!)](https://git.io/typing-svg)
+<P align="center">
+ <img width="735" height="548" alt="badaf20614b1a5dfdb48a95e54b8406f" src="https://github.com/user-attachments/assets/42190d9b-2381-49d7-90a7-767c356b189a" />
 
 
 
