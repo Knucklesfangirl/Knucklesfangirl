@@ -6,9 +6,10 @@
 <P align="center">
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7B7D4&width=435&lines=sweet+sweet;you're+so+sweet!)](https://git.io/typing-svg)
-<P align="center">
- <img width="735" height="548" alt="badaf20614b1a5dfdb48a95e54b8406f" src="https://github.com/user-attachments/assets/42190d9b-2381-49d7-90a7-767c356b189a" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Diplomata&pause=1000&color=F70000&width=435&lines=%E2%AD%90+diez+%E2%AD%90;%E2%AD%90+nueve+%E2%AD%90;%E2%AD%90+ocho+%E2%AD%90;%E2%AD%90+siete+%E2%AD%90;%E2%AD%90+seis+%E2%AD%90;%E2%AD%90+cinco+%E2%AD%90;%E2%AD%90+cuatro+%E2%AD%90;%E2%AD%90+tres+%E2%AD%90;%E2%AD%90+dos+%E2%AD%90;%E2%AD%90+uno+%E2%AD%90)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<P align="center">
+<img width="819" height="579" alt="jFhNOWhdzF4Y9aocpHH8EA0DgYFIgp3qMhvbjjv0wj-e0eiP-mTTMwpXtG3mqkDbukbfCL2Z-Ds09RQEnVWHDg" src="https://github.com/user-attachments/assets/57b4c60a-1c16-48b4-842b-8041846430e3" />
+
 
 
 
