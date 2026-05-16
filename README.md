@@ -6,9 +6,10 @@
 <P align="center">
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Diplomata&pause=1000&color=F70000&width=435&lines=%E2%AD%90+diez+%E2%AD%90;%E2%AD%90+nueve+%E2%AD%90;%E2%AD%90+ocho+%E2%AD%90;%E2%AD%90+siete+%E2%AD%90;%E2%AD%90+seis+%E2%AD%90;%E2%AD%90+cinco+%E2%AD%90;%E2%AD%90+cuatro+%E2%AD%90;%E2%AD%90+tres+%E2%AD%90;%E2%AD%90+dos+%E2%AD%90;%E2%AD%90+uno+%E2%AD%90)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=roboto&letterSpacing=-1px&duration=2000&pause=10&color=3DF7EC&width=435&lines=We+see+you;Opal%2C;your+troubles+are+miles+away!;We+see+you;Opal.;.+++++.++++.;and+in;our+++++++++++eyes;you'll+++stay)](https://git.io/typing-svg)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<P align="center">
-<img width="819" height="579" alt="jFhNOWhdzF4Y9aocpHH8EA0DgYFIgp3qMhvbjjv0wj-e0eiP-mTTMwpXtG3mqkDbukbfCL2Z-Ds09RQEnVWHDg" src="https://github.com/user-attachments/assets/57b4c60a-1c16-48b4-842b-8041846430e3" />
+<img width="718" height="417" alt="e0ac8ce68808cd32adb62dd705ae723d" src="https://github.com/user-attachments/assets/1e31d221-4fd0-4cc6-9d7f-0e9d36dbdc78" />
+
 
 
 
