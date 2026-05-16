@@ -22,6 +22,9 @@
  
 <P align="center">
 I follow whoever I find nice / cool!!
+
+<P align="center">
+I'm also a lil dry whenever I'm texting at times sorry
  
 <P align="center">
 I draw on people's strawpages . . .sometimes. . .maybe... . always..???????????
