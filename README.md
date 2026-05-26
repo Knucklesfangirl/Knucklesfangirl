@@ -33,7 +33,10 @@ I follow whoever I find nice / cool!!
  
 <P align="center">
 I draw on people's strawpages . . .sometimes. . .maybe... . always..???????????
-
+ 
+<P align="center">
+𝐏𝐋𝐄𝐀𝐒𝐄 𝐃𝐍𝐂 𝐌𝐘 𝐒𝐊𝐈𝐍𝐒/𝐂𝐎𝐒𝐏𝐋𝐀𝐘𝐒 unless you're a 🡆 close friend 🡄
+ 
 <P align="center">
 kindly 𝐝𝐧𝐢 if you tell others to "keys" over something, you should never say ANYTHING like that to anyone. Thank you!
 
