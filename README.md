@@ -6,7 +6,7 @@
 <P align="center">
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Slab&duration=3000&pause=100&color=B77BF7&width=435&lines=They+tore+me+apart;They+used+me+for+parts;They+took+away+my+FACE%2C;THEY+TOOK+AWAY+MY+ARM.)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Slab&duration=3000&pause=100&color=B77BF7&width=435&lines=They+tore+me+apart;They+used+me+for+parts;They+took+away+my+FACE%2C;THEY+TOOK+AWAY+MY+ARM.)](https://git.io/typing-svg)
 <P align="center">
 <img width="735" height="551" alt="ac8e9f04d42d05c7fedc504b4bca6e7e" src="https://github.com/user-attachments/assets/025c03fe-fd4b-4f7d-8827-b61a8e4b0ed3" />
 
