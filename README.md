@@ -5,10 +5,11 @@
 
 <P align="center">
  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&pause=1000&color=5890F7&width=435&lines=HAII+HELLO+HAIII!!+I+love+finn+%3C3;art+by+cheesestick+on+pinterest;and+the+same+SITE+for+my+pfp!!!!!!)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Noto+Serif&size=15&duration=3000&pause=10&color=679FA6&width=435&lines=The+sun;proposed+to+the+moon;and+the+moon+said%3A;%22I+don't+know%2C+I+don't+know%2C+I+don't+know%2C;give+me+a+break%22" alt="Typing SVG" /></a>
 
 <P align="center">
-<img width="735" height="601" alt="1522eb8986dcc7add82eb0827ffa97a8" src="https://github.com/user-attachments/assets/faff8d44-1732-4910-a5be-659b167f4cd5" />
+<img width="736" height="608" alt="3546dd5deb224813c8ce730cc0fca290" src="https://github.com/user-attachments/assets/f8667411-89bc-4295-80fe-082d5eca8504" />
+
 
 
 <P align="center">
