@@ -5,10 +5,13 @@
 
 <P align="center">
  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Noto+Serif&size=15&duration=3000&pause=10&color=679FA6&width=435&lines=The+sun;proposed+to+the+moon;and+the+moon+said%3A;%22I+don't+know%2C+I+don't+know%2C+I+don't+know%2C;give+me+a+break%22" alt="Typing SVG" /></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist&duration=3000&pause=1000&color=427BF7&width=435&lines=%22I+think+that+I+like+you%22;%22yeah%2C%22;%22but+something+bugs+me+bout'+the;way+you+lick+your+envelopes%2C+so%2C%22)](https://git.io/typing-svg)
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist&duration=3000&pause=1000&color=FF84C3&width=435&lines=%22you+do%3F%22;...;....;.....)](https://git.io/typing-svg)
 <P align="center">
-<img width="736" height="608" alt="3546dd5deb224813c8ce730cc0fca290" src="https://github.com/user-attachments/assets/f8667411-89bc-4295-80fe-082d5eca8504" />
+<img width="1200" height="675" alt="02347c1777d782a5e3fc9802617883d0" src="https://github.com/user-attachments/assets/1fec1ea3-945d-4f5f-90ab-cfe9de1d0019" />
+
+
 
 
 
