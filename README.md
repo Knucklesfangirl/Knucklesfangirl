@@ -41,7 +41,7 @@
 I follow whoever I find nice / cool!!
  
 <P align="center">
-I draw on people's strawpages . . .sometimes. . .maybe... . always..???????????
+I draw on people's strawpages . . .sometimes. .
  
 <P align="center">
 𝐏𝐋𝐄𝐀𝐒𝐄 𝐃𝐍𝐂 𝐌𝐘 𝐒𝐊𝐈𝐍𝐒/𝐂𝐎𝐒𝐏𝐋𝐀𝐘𝐒 unless you're a 🡆 close friend 🡄
