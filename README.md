@@ -7,7 +7,7 @@
  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist&duration=3000&pause=1000&color=427BF7&width=435&lines=%22I+think+that+I+like+you%22;%22yeah%2C%22;%22but+something+bugs+me+bout'+the;way+you+lick+your+envelopes%2C+so%2C%22)](https://git.io/typing-svg)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist&duration=3000&pause=1000&color=FF84C3&width=435&lines=%22you+do%3F%22;...;....;.....)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist&duration=3000&pause=1000&color=FF84C3&width=435&lines=%22you+do%3F%22;...;....;.....)](https://git.io/typing-svg)
 <P align="center">
 <img width="1200" height="675" alt="02347c1777d782a5e3fc9802617883d0" src="https://github.com/user-attachments/assets/1fec1ea3-945d-4f5f-90ab-cfe9de1d0019" />
 
