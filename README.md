@@ -5,10 +5,10 @@
 
 <P align="center">
  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+VIC+WA+NT+Hand&pause=1000&color=F7F7F7&width=435&lines=forever+glazing+Silent+Salt;beautiful+art+by+%40Mappmup+on+X!)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&duration=3000&pause=1000&color=7E98AF&width=435&lines=Understand+what's+going+on;inside+my+mind.;Doctor%2C+I+can't+tell+if+I'm+not+me.)](https://git.io/typing-svg)
 
 <P align="center">
-<img width="735" height="507" alt="15a692011d806397af29afa225ebcaf3" src="https://github.com/user-attachments/assets/6031fe52-0d07-438b-bdd2-5331a6da22df" />
+<img width="735" height="542" alt="2cb84b55f89f3f84fd77d7c9288f68af" src="https://github.com/user-attachments/assets/4f106044-4bd8-4b3e-9a6b-36e337c8ad39" />
 
 
 
