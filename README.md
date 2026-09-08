@@ -1,13 +1,4 @@
 
-
-
-
-
-<P align="center">
-⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
 <P align="center">
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/08cedf58-2af3-462d-ac6b-7e7b948b4b30" /> <img width="99" height="56" alt="stamp (1)" src="https://github.com/user-attachments/assets/3b14488b-86e1-45fd-a2d5-04fabf09baae" /> <img width="99" height="57" alt="stamp (2)" src="https://github.com/user-attachments/assets/00e50465-e179-4d3c-aa79-d3252ad8466f" /> <img width="95" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/a29234c0-7718-4db7-a6fa-9557d8fedf1f" /> <img width="98" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/13008ffc-995d-41d2-8cb2-d358b381a0f9" /> <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/f5e3032f-c675-45e0-9181-53b15104140e" />
 
