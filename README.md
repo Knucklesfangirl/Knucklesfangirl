@@ -10,7 +10,8 @@
 
 
 <P align="center">
-<img width="735" height="497" alt="cf93adf8aadaeb80800c0877d99a9eca" src="https://github.com/user-attachments/assets/b02280c6-47e2-419b-bedb-ccb145d0c69c" />
+<img width="736" height="414" alt="75242eeabfb823dad0d1ba2454ab8006" src="https://github.com/user-attachments/assets/1869b1fd-c7a3-4bc2-b93a-7434e86125f1" />
+
 
 
 
