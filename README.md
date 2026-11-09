@@ -10,7 +10,8 @@
 
 
 <P align="center">
-<img width="736" height="414" alt="e7ff017ec2eacab3fda46832ff528d48" src="https://github.com/user-attachments/assets/20d37974-2af0-4f1e-8a06-5ac9e3de56ec" />
+<img width="1199" height="1104" alt="2026_11_08_0v5_Kleki" src="https://github.com/user-attachments/assets/1aad37f8-b0c6-4252-9db0-6d4b86eeb5a1" />
+
 
 
 
