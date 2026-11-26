@@ -11,12 +11,14 @@ Silent Salt yume <3333 sharing!!! :cute: n' like.. . several other characters bu
  <P align="center">
   <img width="99" height="56" alt="stamp_1778912638_ca5069b217c14fe3928d229e7da801ff" src="https://github.com/user-attachments/assets/7d983466-f331-42c7-9353-d75df654ab0e" /> <img width="99" height="56" alt="stamp_1778912808_238861675db046a3a0a67d98ea386e08" src="https://github.com/user-attachments/assets/c99e0b1c-0434-4298-9e9a-048798627f73" /> <img width="99" height="56" alt="stamp_1778912970_85c0298456d648c89e36c1182e2e898c" src="https://github.com/user-attachments/assets/597ebe1d-6500-42bd-b5a1-e131ca1b2cdf" />
  <P align="center">
-𝐏𝐋𝐄𝐀𝐒𝐄 𝐃𝐍𝐂 𝐌𝐘 𝐒𝐊𝐈𝐍𝐒/𝐂𝐎𝐒𝐏𝐋𝐀𝐘𝐒 unless you're a 🡆 close friend 🡄
+𝐏𝐋𝐄𝐀𝐒𝐄 𝐃𝐍𝐂 𝐌𝐘 𝐒𝐊𝐈𝐍𝐒/𝐂𝐎𝐒𝐏𝐋𝐀𝐘𝐒 unless you're a
+  🡆 close friend 🡄
   <P align="center">
    <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/08cedf58-2af3-462d-ac6b-7e7b948b4b30" /> <img width="99" height="56" alt="stamp (1)" src="https://github.com/user-attachments/assets/3b14488b-86e1-45fd-a2d5-04fabf09baae" /> <img width="99" height="57" alt="stamp (2)" src="https://github.com/user-attachments/assets/00e50465-e179-4d3c-aa79-d3252ad8466f" />
 <P align="center">
 kindly 𝐝𝐧𝐢 if you tell others to "keys" over something, you should never say ANYTHING like that to anyone. Thank you!
- <img width="95" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/a29234c0-7718-4db7-a6fa-9557d8fedf1f" /> <img width="98" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/13008ffc-995d-41d2-8cb2-d358b381a0f9" /> <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/f5e3032f-c675-45e0-9181-53b15104140e" />
+ <P align="center">
+  <img width="95" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/a29234c0-7718-4db7-a6fa-9557d8fedf1f" /> <img width="98" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/13008ffc-995d-41d2-8cb2-d358b381a0f9" /> <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/f5e3032f-c675-45e0-9181-53b15104140e" />
 <P align="center">
  <img width="20" height="20" alt="IMG-5201" src="https://github.com/user-attachments/assets/8d6a1e44-01bd-4a4c-9a75-8e5f14e219ec" /> ୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧ <img width="20" height="20" alt="IMG-5461" src="https://github.com/user-attachments/assets/4231134c-bf5a-49ed-9877-cddd56306474" />
 <img width="962" height="252" alt="Untitled637_20261125174618" src="https://github.com/user-attachments/assets/b1b9714d-bdbc-44bd-a6bb-fd4ee3cc03aa" />
