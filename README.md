@@ -3,7 +3,7 @@
  <img width="962" height="252" alt="Untitled637_20261125174306" src="https://github.com/user-attachments/assets/506f2578-6277-42fb-8c14-6e168ac0d109" />
  <img align="left" width="422" height="600" alt="Untitled634_20261125173933" src="https://github.com/user-attachments/assets/2aed5600-777d-46ad-aaf8-9a57bb59604d" />
 <P align="center">
-I follow whoever I find nice / cool!!
+<img width="22" height="22" alt="IMG-6239" src="https://github.com/user-attachments/assets/c3a8dd02-ed8d-422e-85fd-41a78ace8579" /> I follow whoever I find nice / cool!! <img width="20" height="20" alt="IMG-5401" src="https://github.com/user-attachments/assets/b501c7e6-a233-41ee-95ad-967dfc655717" />
  <P align="center">
 Silent Salt yume <3333 sharing!!! :cute: n' like.. . several other characters but I'm not listing allat ✌
  <P align="center">
